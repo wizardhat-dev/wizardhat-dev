@@ -1,4 +1,4 @@
-![:wizardhat](https://count.getloli.com/get/@:wizardhat)
+![:wizardhat](https://count.chiya.dev/get/@wizardhat?theme=moebooru)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
